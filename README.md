@@ -1,2 +1,2 @@
 # ricko.xyz
-website for all my stuff
+website for all my stuff!
